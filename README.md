@@ -24,8 +24,8 @@ I'll code for 3 months in a row in a hyperfixating way, then i'll spend 5 months
 
 (Each time I'll try to approach things differently and learn from my mistakes though.)
 
-I have a little social battery and I might ignore your messages or take a lot of time to reply. I am just like that, I sometimes do not want to have a lot of social interactions.
-Please do not insist or it will make things even worse.
+I have a little social battery and I might ignore your messages or take a lot of time to reply. Or sometimes I just do not want social interactions.
+Please do not insist.
 
 <!--
 **AuraCatPerpinya/AuraCatPerpinya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
