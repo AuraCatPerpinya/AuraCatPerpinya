@@ -12,7 +12,7 @@ What do I have between my legs? Very weird thing to be wondering about, mind you
 
 I am (very) weird and quirky and you might not like me, but it's ok, I promise.
 
-If I do or say actually inappropriate things feel free to tell me, I am very probably not aware of it. (And I won't be until somebody tells me).
+If I do or say actually inappropriate things or act in an appropriate way, please feel free to tell me, I am very probably not aware of it. (And I won't be until somebody tells me).
 
 I like IT and coding and videogames and languages and many things.
 
